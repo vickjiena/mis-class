@@ -1,8 +1,4 @@
-
-
-
-
-#welcome to my little page! 
+welcome to my little page!!!
 
 
 Just a lawyer trying my hand at an IMBA,  course and also trying to figure **China**
