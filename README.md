@@ -1,11 +1,19 @@
-#Profile
+Profile
+
+
 
 welcome to my little page! 
 
-##lawyer 
+
+
+
+
+just a lawyer 
+
+
 
 -trying my hand at an IMBA course
 
--also trying to figure how **China** works
+-also trying to figure how China works
 
 ------------------------------------------------------------
