@@ -6,7 +6,7 @@ Just a lawyer trying my hand at an IMBA  course and also trying to figure **Chin
 If absolutely necessary,  call me. Otherwise just go to my Instagram 😁
 
 
-! [Vick Daniele](/@vickdaniele) 
+ [@Vick Daniele](/@vickdaniele) 
 
 
 
